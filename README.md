@@ -1,1 +1,0 @@
-# anirudhnbharadwaj.github.io
